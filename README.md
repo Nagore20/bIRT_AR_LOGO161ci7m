@@ -1,1 +1,0 @@
-# bIRT_AR_LOGO161ci7m
